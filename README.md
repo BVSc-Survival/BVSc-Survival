@@ -1,1 +1,1 @@
-### Helping you survival the BVSc Degree
+### Helping you survive the BVSc Degree
